@@ -1,0 +1,2 @@
+# IWANNAPLATINUM
+플래가고싶어요
